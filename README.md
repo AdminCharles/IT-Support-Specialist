@@ -1,2 +1,2 @@
 # IT-Support-Specialist
-My IT Support Tasks
+My IT Support Tasks and Skills
